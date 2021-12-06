@@ -1,0 +1,15 @@
+## Part 18
+
+Hippias and Hipparchus assumed the control of affairs on grounds alike of standing and of age; but Hippias, as being also naturally of a statesmanlike and shrewd disposition, was really the head of the government.
+Hipparchus was youthful in disposition, amorous, and fond of literature (it was he who invited to Athens Anacreon, Simonides, and the other poets), while Thessalus was much junior in age, and was violent and headstrong in his behaviour.
+It was from his character that all the evils arose which befell the house.
+He became enamoured of Harmodius, and, since he failed to win his affection, he lost all restraint upon his passion, and in addition to other exhibitions of rage he finally prevented the sister of Harmodius from taking the part of a basket-bearer in the Panathenaic procession, alleging as his reason that Harmodius was a person of loose life.
+Thereupon, in a frenzy of wrath, Harmodius and Aristogeiton did their celebrated deed, in conjunction with a number of confederates.
+But while they were lying in wait for Hippias in the Acropolis at the time of the Panathenaea (Hippias, at this moment, was awaiting the arrival of the procession, while Hipparchus was organizing its dispatch) they saw one of the persons privy to the plot talking familiarly with him.
+Thinking that he was betraying them, and desiring to do something before they were arrested, they rushed down and made their attempt without waiting for the rest of their confederates.
+They succeeded in killing Hipparchus near the Leocoreum while he was engaged in arranging the procession, but ruined the design as a whole; of the two leaders, Harmodius was killed on the spot by the guards, while Aristogeiton was arrested, and perished later after suffering long tortures.
+While under the torture he accused many persons who belonged by birth to the most distinguished families and were also personal friends of the tyrants.
+At first the government could find no clue to the conspiracy; for the current story, that Hippias made all who were taking part in the procession leave their arms, and then detected those who were carrying secret daggers, cannot be true, since at that time they did not bear arms in the processions, this being a custom instituted at a later period by the democracy.
+According to the story of the popular party, Aristogeiton accused the friends of the tyrants with the deliberate intention that the latter might commit an impious act, and at the same time weaken themselves, by putting to death innocent men who were their own friends; others say that he told no falsehood, but was betraying the actual accomplices.
+At last, when for all his efforts he could not obtain release by death, he promised to give further information against a number of other persons; and, having induced Hippias to give him his hand to confirm his word, as soon as he had hold of it he reviled him for giving his hand to the murderer of his brother, till Hippias, in a frenzy of rage, lost control of himself and snatched out his dagger and dispatched him.
+
