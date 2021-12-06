@@ -3,5 +3,4 @@ authors = ["Moenarch"]
 language = "en"
 multilingual = false
 src = "src"
-title = 
-"Athenian Constitution"
+title = "Athenian Constitution"
